@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Daniel or @Daniel4757.
+- 👀 I’m interested in creating games.
+- 🌱 I’m currently learning coding.
+- 💞️ I’m looking to collaborate on minecraft.
+- 📫 How to reach me. don't tink about it.
